@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kagamiin but actually konata not kagami but whatever
+- 👋 Hi, I’m @Kagamiin, I'm a she/her, ~~I'm also actually a cinderace~~
 - 👀 I’m interested in a lot of stuff but it's too much for me to bother to list it all
 - 🌱 I’m currently learning to cope with life
 - 💞️ I’m looking to collaborate on the chiptune community
